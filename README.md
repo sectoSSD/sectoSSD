@@ -7,3 +7,5 @@ to learn on the side of data ingeeniring.
 
 I live and grew up in the countryside and my strength is to have kept this "old world" taste of simplicity and work well done. By inclination I am also a man of science and I kept the taste of investigation and methodological 
 requirement.  Outside work I take care of my vegetables and flowers or I read philosohie and history. I also spend a lot of time looking after the elderly at the retirement home in my village.
+
+Ho! and I am French. If you know monthy python you will understand why I chose this character ...
